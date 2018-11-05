@@ -6,3 +6,5 @@ holbolt hiigdlee bodlogonuudaa ene deer add hiigeerei
 4. git pull --> // repositoryg tataj avah huselt gargana
 
 	Good Luck .!
+
+	aladaadadg zaasaaraaarri.
