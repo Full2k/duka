@@ -13,4 +13,5 @@ holbolt hiigdlee bodlogonuudaa ene deer add hiigeerei
 	Odoo yaj bna?
 	ingej neg boloh gej ^_^
 =======
+nmg amidaar min zowooloo chi !!!!!!!!!!!!!!!
 >>>>>>> 6a109914afe27bad7126a9387780057a8994d3b5
