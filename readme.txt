@@ -14,4 +14,5 @@ holbolt hiigdlee bodlogonuudaa ene deer add hiigeerei
 	ingej neg boloh gej ^_^
 =======
 nmg amidaar min zowooloo chi !!!!!!!!!!!!!!!
+So sorry my bad
 >>>>>>> 6a109914afe27bad7126a9387780057a8994d3b5
